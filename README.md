@@ -2,5 +2,5 @@
 
 integrantes
 
-Gabriel Montiel Chamorro
+Gabriel Montiel Chamorro (Creador)
 
